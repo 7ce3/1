@@ -1,10 +1,8 @@
 # 小奶猫最新下载地址（2020年5月27日更新）
-### [yayj.vip](http://yayj.vip)
+### [f3v7.com](http://f3v7.com)
 ### [hqel.vip](http://hqel.vip)
 ### 主播版下载地址 [7mvo.com](http://7mvo.com)<br> （观众下载无法使用）
 备用观众版下载地址如下<br>
-8cuf.vip<br>
-f3v7.com<br>
 e60y.com<br>  
 m72n.com<br>  
 6tyx.com<br>  
