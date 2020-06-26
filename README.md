@@ -1,16 +1,14 @@
-# 小奶猫最新下载地址（2020年6月20日更新）
-### [f3v7.com](http://f3v7.com)
+# 小奶猫最新下载地址（2020年6月26日更新）
+### [m72n.com](http://m72n.com)
 ### [e60y.com](http://e60y.com)
 ### 主播版下载地址 [e0t3.com](http://e0t3.com)<br> （观众下载无法使用）
 备用观众版下载地址如下<br> 
-m72n.com<br>  
 0zw8.com<br>  
 l6e5.com<br>  
 kf0e.com<br>
 
 
 备用主播版下载地址如下<br>
-oog4.com<br>
 42a4.com<br>
 0jzy.com<br>
 
